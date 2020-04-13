@@ -16,3 +16,7 @@ Dissolve yeast in milk and set aside for 10 minutes or until mixture bubbles. St
 **Note**
 
 •White anchovies in oil are available from delis and specialist food shops. Substitute regular anchovy fillets.
+
+## Tips
+
+- Delicious with garlic bread and ice cream
